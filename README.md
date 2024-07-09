@@ -6,7 +6,7 @@
 - You can reach me on:
 -   Facebook:
 -     https://www.facebook.com/profile.php?id=100094576483809&locale=pl_PL
--   Twitter:
+-   X:
 -     https://twitter.com/quriuvern
 -   Discord:
 -     quiruven
