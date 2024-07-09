@@ -7,7 +7,7 @@
 -   Facebook:
 -     https://www.facebook.com/profile.php?id=100094576483809&locale=pl_PL
 -   X:
--     https://twitter.com/quriuvern
+-     https://x.com/quriuvern
 -   Discord:
 -     quiruven
 
